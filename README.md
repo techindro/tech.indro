@@ -1,4 +1,4 @@
-[![MasterHead](https://i.postimg.cc/vmsx7CKN/a-cinematic-screenshot-from-the-movie-techindro-th-Kkz-J7j-Sv-TWKodfbb-JQ1-ZA-Bnt-QECxc-RNCLCD3-Odgrp-PQ.jpg)](https://techindros.websites.co.in​)
+[![MasterHead](https://i.postimg.cc/cLC6Rw0P/IMG-20240921-004524.jpg](https://techindros.websites.co.in​)
 <h1 align="center">Hi 👋, I'm Shubham Patel(techindro)</h1>
 <h3 align="center">A passionate social media influencer and educator</h3>
 <img align="right" alt="Coding" width="400" src="https://cdn.dribbble.com/users/1162077/screenshots/3848914/media/7ed7d5ca074b48b328150e5a231e8d1f.gif">
